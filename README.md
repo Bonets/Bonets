@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bonets
+- 👀 I’m interested in technology, computers, programming
+- 🌱 Università degli Studi di Verona
